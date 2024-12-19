@@ -1,1 +1,0 @@
-new file pro kakuyu to hernyu
